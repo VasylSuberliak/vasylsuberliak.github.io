@@ -1,1 +1,0 @@
-# vasylsuberliak.github.io
